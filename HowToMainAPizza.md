@@ -8,6 +8,11 @@ Para preparar pizza necesitamos los siguientes ingredientes
 -Azucar
 -Jamon
 -Salsa de Tomate
+-Champiñion 
+-Levadura
 
+Pasos para crear la pizza 
+
+Primero: Para ello, lo primero que vamos a hacer es mezclar en un recipiente el agua templada con la levadura fresca.
 segundo: Cuando se haya mezclado la levadura con el agua, agrega las dos cucharadas de aceite.
 Mezcla bien para que se integren todos los ingredientes para la pizza.
