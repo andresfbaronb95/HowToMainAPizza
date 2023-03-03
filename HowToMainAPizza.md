@@ -19,3 +19,8 @@ segundo: Cuando se haya mezclado la levadura con el agua, agrega las dos cuchara
 Mezcla bien para que se integren todos los ingredientes para la pizza.
 
 tercer paso: Antes de que la preparación se enfríe, añade en un bol amplio la harina de fuerza y la sal, acomódalas en forma de volcán. Vierte la mezcla anterior en el centro.
+
+cuarto paso: Antes de que la preparación se enfríe, añade en un bol amplio la harina de fuerza y la sal, acomódalas en forma de volcán. Vierte la mezcla anterior en el centro.
+
+quinto paso: Ahora es cuando tienes que empezar a amasar bien hasta que notes que la masa de pizza casera deja de pegarse en tus
+manos y puedes manejarla sin problemas.
