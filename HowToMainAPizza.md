@@ -19,3 +19,5 @@ segundo: Cuando se haya mezclado la levadura con el agua, agrega las dos cuchara
 Mezcla bien para que se integren todos los ingredientes para la pizza.
 
 tercer paso: Antes de que la preparación se enfríe, añade en un bol amplio la harina de fuerza y la sal, acomódalas en forma de volcán. Vierte la mezcla anterior en el centro.
+
+sexto paso: Cuando se tenga la masa de pizza esponjosa lista, deberá darle forma de tubo largo y cortarla en 4 particiones. Después, haz una bola con cada partición y tápalas con un trapo limpio y seco. Deberás dejarlas reposar durante 45 minutos. Verás que, poco a poco, empiezan a elevarse hasta duplicar su volumen. Cada bola de masa te servirá para hacer una pizza casera normal.
