@@ -33,3 +33,7 @@ septimo paso: Pasado el tiempo correspondiente, espolvorea un poco de harina sob
 
 octavo paso: Una vez hayas escogido los ingredientes y tengas tu masa de pizza casera terminada, deberás precalentar el horno a temperatura máxima durante unos 20 minutos.
 
+
+
+
+Noveno paso: Pasado el tiempo, introduce la preparación pizza casera y hornéala durante 10 minutos aproximadamente. Deberás vigilarla porque el tiempo final variará en función del tipo de horno y la intensidad que tenga. ¡Listo, tu pizza casera al horno estará para chuparse los dedos!  
